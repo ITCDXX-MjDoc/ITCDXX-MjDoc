@@ -1,0 +1,3 @@
+- 👋 Hi, I’m [ITCDXX]-MjDoc
+- 👀 I’m interested in "Bohemia Interactive" scripts
+- 📫 How to reach me blackrocksoffate@gmail.com
